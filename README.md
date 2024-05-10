@@ -1,16 +1,18 @@
-### Hi there 👋
+### Salve prazer ter vc aqui no meu perfil 🫶
 
-<!--
-**felipin007/felipin007** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+-Meu nome é Felippe 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+°Estou estudando aqui no Salvador  
+°Estou aqui desenvolvendo essa linguagem de java  
+°Ultilizo esse negócio aqui para me organizar e para compartilhar meus projetinhos desenvolvidos 
+
+
+###  Você pode me chama aqui no 🇯🇲
+
+fergonsil1103@gmail.com
+
+@felipin_dr
+
+
+![](https://media1.tenor.com/m/X-cE9uKmKyQAAAAC/kermit-shooting.gif)
